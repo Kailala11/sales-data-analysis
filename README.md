@@ -229,9 +229,7 @@ Potensi pengembangan proyek ini:
 
 Jika Anda tertarik dengan proyek ini atau ingin berdiskusi lebih lanjut:
 
-- LinkedIn: [Your LinkedIn Profile]
-- Email: your.email@example.com
-- Portfolio: [Your Portfolio Website]
+- Email: kailahidayatussakinah@gmail.com
 
 ---
 
